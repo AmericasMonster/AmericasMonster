@@ -5,3 +5,5 @@ dont try and be friends w me if you cant handle being called out for shit
 i block loosely
 
 ![](https://files.catbox.moe/g8yd5r.webp)
+
+super iffy about 'systems' on this game lol. just say youre a kinnie for the love of god.
