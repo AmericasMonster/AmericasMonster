@@ -6,4 +6,4 @@ i block loosely
 
 ![](https://files.catbox.moe/g8yd5r.webp)
 
-super iffy about 'systems' on this game lol. just say youre a kinnie for the love of god.
+super iffy about 'systems' on this game lol.
