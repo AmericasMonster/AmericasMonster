@@ -6,4 +6,3 @@ i block loosely
 
 ![](https://files.catbox.moe/2itwde.png)
 
-super iffy about 'systems' on this game lol.
